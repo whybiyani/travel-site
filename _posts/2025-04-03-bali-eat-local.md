@@ -3,7 +3,7 @@ title: "Eat Like a Local: 10 Cheap Bali Eats You Can’t Miss"
 date: 2025-04-03
 ---
 
-![Bali Street Food](https://images.unsplash.com/photo-1608136722306-8aa0b5dc379b)
+![Bali Street Food](https://images.unsplash.com/photo-1590488271114-d65198ae0717?auto=format&fit=crop&w=1200&h=630)
 
 ## Why Local Eats Matter  
 Bali is a food lover’s paradise where you can enjoy rich, authentic flavors without spending much. From spicy rice dishes to sweet treats, eating like a local means eating well—and cheap.
