@@ -3,7 +3,7 @@ title: "7 Countries Offering Free Workation Visas (2025 List)"
 date: 2025-04-04
 ---
 
-![Digital Nomad](https://images.unsplash.com/photo-1604998103924-89e492e6e7f5?auto=format&fit=crop&w=1200&h=630)
+![Digital Nomad](https://images.unsplash.com/photo-1715210471871-590883e6a720?auto=format&fit=crop&w=1200&h=630)
 
 ## 1. Portugal's Digital Nomad Visa  
 Requirements: [Proof of Income Template](https://amzn.to/3YdZ1jV)  
