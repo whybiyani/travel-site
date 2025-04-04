@@ -4,7 +4,7 @@ date: 2025-04-01
 categories: [travel]
 ---
 
-![Bali Beach](https://images.unsplash.com/photo-1552733407-9d...)
+![Bali Hostel]([https://images.unsplash.com/photo-1552733407-9d...](https://images.unsplash.com/photo-1657340835640-8cd097332129?auto=format&fit=crop&w=1200&h=630&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8M3x8YmFsaSUyMGhvc3RlbHxlbnwwfHwwfHx8MA%3D%3D))
 
 ## Cheap Hostel Hack (2025 Update)
 Use [Booking.com](https://www.booking.com/?aid=YOUR_AFFILIATE_ID) to book...
