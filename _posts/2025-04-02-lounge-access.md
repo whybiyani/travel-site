@@ -3,7 +3,7 @@ title: "Free Airport Lounge Access in 2025 (No Premium Card Needed)"
 date: 2025-04-02
 ---
 
-![Airport Lounge](https://images.unsplash.com/photo-1586611296661-df...)
+![Airport Lounge](https://images.unsplash.com/photo-1554260570-9140fd3b7614?auto=format&fit=crop&w=1200&h=630)
 
 ## The Priority Pass Hack
 Most travelers don't know about [Capital One Venture X](https://www.capitalone.com/apply/YOUR_AFFILIATE) - $395 annual fee card that gives...
