@@ -1,6 +1,6 @@
 ---
 title: "Bali for $23/Day: 2025 Secret Itinerary"
-date: 2025-07-18
+date: 2025-04-01
 categories: [travel]
 ---
 
