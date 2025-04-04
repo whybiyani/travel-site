@@ -6,7 +6,7 @@ categories: [travel]
 
 ![Bali Beach](https://images.unsplash.com/photo-1552733407-9d...)
 
-## Cheap Hostel Hack (2024 Update)
+## Cheap Hostel Hack (2025 Update)
 Use [Booking.com](https://www.booking.com/?aid=YOUR_AFFILIATE_ID) to book...
 
 ### Amazon Essentials
